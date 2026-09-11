@@ -2,7 +2,7 @@
 
 ## 💰 Industry Domain
 
-Marketing
+Marketing Department
 
 ## 🏢 About the Company
 
