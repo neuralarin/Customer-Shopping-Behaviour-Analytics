@@ -2,7 +2,7 @@
 
 ## 💰 Industry Domain
 
-Retail & Ecommerce
+Marketing
 
 ## 🏢 About the Company
 
